@@ -1,1 +1,1 @@
-# Ayr-k-Sistemler-i-in-leri-Olas-l-k
+# Ayrık Sistemler için ileri olasılık dersi ödevi
